@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Glukosa-1321 👋
+- 👀 I’m an alt for PLWEP 👀
